@@ -2,4 +2,4 @@
 SOCIAL MEDIA BOMBING TOOL AVAILABLE FOR WINDOWS! 
 
 IT WILL BE AVAILABLE FOR LINUX AND MAC SOON!
-🔜🔜🔜🔜🔜🔜🔜🔜🔜🔜🔜🔜🔜🔜🔜😁😁😁😁😁😁
+🔜😁😁😁😁😁😁
